@@ -1,4 +1,4 @@
-👋 Hi, I’m Andrew Benson.
+👋🏼 Hi, I’m Andrew Benson.
 
 🎓I'm a post-doc at Sandia National Laboratories.
 
